@@ -1,0 +1,1 @@
+Ada sepuluh cerita tentang hotel yang tidak boleh disebutkan namanya.
